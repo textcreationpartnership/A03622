@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A Declaration of the ten holy cōmaundementes of allmygthye God / wroten Exo. 20. Deu. 5. Collectyd 
+
 1. Vnto the Chryſtiane Reader.
 
 #####Body#####
